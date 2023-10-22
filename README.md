@@ -7,7 +7,7 @@
   All work uploaded to this repository is the work of Keith Cloves unless otherwise stated.  
 
 My Wattpad account:
-https://www.wattpad.com/user/b4nal_
+[https://www.wattpad.com/user/b4nal_](https://www.wattpad.com/user/b4nal_)
 
 ### **How to navigate/use:**
 
