@@ -6,6 +6,9 @@
 
   All work uploaded to this repository is the work of Keith Cloves unless otherwise stated.  
 
+My Wattpad account:
+https://www.wattpad.com/user/b4nal_
+
 ### **How to navigate/use:**
 
 ##### Files uploaded will have a tag prepended indicating the type of written composition the file is:  
