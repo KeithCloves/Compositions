@@ -25,4 +25,5 @@ Do not reproduce, scan, or distribute any part of this composition without permi
 Sharing the composition along with credit to the author is permitted.
 
 **Feel free to add comments, critiques, feedback, etc. in the "Discussions" category!**  
+
 Thank you for your kind consideration.
