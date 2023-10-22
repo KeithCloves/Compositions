@@ -11,7 +11,8 @@ My Wattpad account:
 
 ### **How to navigate/use:**
 
-##### Files uploaded will have a tag prepended indicating the type of written composition the file is:  
+**Files uploaded will have a tag prepended indicating the type of written composition the file is:**   
+
 [NM]: Novel Manuscripts: [NM]  
 [SN]: Short Novels: [SN]  
 [FF]: Fan Fiction: [FF]  
@@ -23,5 +24,5 @@ My Wattpad account:
 Do not reproduce, scan, or distribute any part of this composition without permission of the author.  
 Sharing the composition along with credit to the author is permitted.
 
-##### Feel free to add comments, critiques, feedback, etc. in the "Discussions" category!  
+**Feel free to add comments, critiques, feedback, etc. in the "Discussions" category!**  
 Thank you for your kind consideration.
